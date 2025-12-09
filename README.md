@@ -1,3 +1,5 @@
 # Root
 
-I govern TITAN.
+I share govern.
+
+I share info tech.
